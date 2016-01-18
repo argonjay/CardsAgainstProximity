@@ -432,7 +432,7 @@ Standard Responses:
 * Tom Cruise.
 * A balanced breakfast.
 * Anal beads.
-* Drinking along.
+* Drinking alone.
 * Cards Against Humanity.
 * Coat hanger abortions.
 * Cuddling.
